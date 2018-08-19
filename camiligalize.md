@@ -1,0 +1,3 @@
+areadeatuacao 
+empresa
+desejo atual
